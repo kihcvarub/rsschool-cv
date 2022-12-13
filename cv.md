@@ -1,5 +1,4 @@
 # Alexandra B
--------
 
 ## Contact information
 
